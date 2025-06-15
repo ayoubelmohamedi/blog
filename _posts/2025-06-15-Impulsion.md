@@ -20,8 +20,8 @@ Paradoxically, such impulsion works best when we are in a state of peace. the mo
 -> Chatgpt said : be content with nothingness often means finding peace, acceptance, or even fulfillment in the absence of things.
 
 -> However I would describe it as:
-    * Nothingness is the norm.
-    * It’s the state in which we were born and how most of our youth was spent. Often bounded by bordom.
+   - Nothingness is the norm.
+   - It’s the state in which we were born and how most of our youth was spent. Often bounded by bordom.
 
 ### Conditions to reach nothingness state
 
