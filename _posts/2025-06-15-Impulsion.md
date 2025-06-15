@@ -40,6 +40,7 @@ State of being as kids for nothingness to emerge.
 1. value is inward.
 2. remain genuine with not knowing and confusion.
 
-If I desire something, I built a story and so I become labeled by that story. For sex there is a story labeled with romance. Losing a fight and acceptig honor death  prevents the ego from completely getting squashed . I always have an explanation of every desire. Even I look for the explanation before having desire at times.
+If one desires something, they build a story. 
 
 
+< to be continued ? >
