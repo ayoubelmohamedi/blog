@@ -1,7 +1,6 @@
 ---
 layout: post
 title: "Impulsion"
-date: 2025-06-15 03:01:00
 ---
 
 In order for something to be, there should be nothing at first. To find impulsion, one must not seek it, but rather comprehend the virtue behind nothingness or idleness. To not do anything and to be fully content. This contradict the feeling of incompleteness that we are mostly occupied with.
