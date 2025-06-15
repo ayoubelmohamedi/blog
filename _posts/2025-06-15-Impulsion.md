@@ -4,7 +4,14 @@ title: "Impulsion"
 ---
 
 In order for something to be, there should be nothing at first. To find impulsion, one must not seek it, but rather comprehend the virtue behind nothingness or idleness. To not do anything and to be fully content. This contradict the feeling of incompleteness that we are mostly occupied with.
-As of any action, there must be some kind of a reward or an impulse that makes us behave in a certain way. With nothingness it’s different matter. What drives someone to repulse certain type of food ? For someone who’s been eating sugar for some time it could be tough to quit. And knowing sugar is unhealthy isn’t motivating either. One feels encouraged and aroused by change ones the little changes shows effect; more energy and mood stability in the case of sugar. 
+
+Mostly, each impulse has a cause. Every action has an explantion. the food we eat, the things we watch and everything we consume pops up towards the conscious level. amid too many arousales, the question is what happens we take off the noise ? when is the impulse legit ? (genuine and serves us best).
+
+Impusion is a broad term. it could describe the action toward anything.
+
+I'm more concern with the kind that makes us live in an active state. a state that is not passive or obdient to external stimuli. This state is filled with energy (fuel action) and playfullness (creativity).
+
+Paradoxically, such impulsion works best when we are in a state of peace. the moment of slowing the pace of things and observe our surrounding. However, an important element that pushes the emergence of such state is "nothingness". Nothingness is everyone who could enjoy leasure (free time). One who could relaxes and understand the no obligation to be something forcefully.
 
 ### We must understand first what it means to be content with nothingness.
 
@@ -12,7 +19,7 @@ As of any action, there must be some kind of a reward or an impulse that makes u
 
 -> However I would describe it as:
     * Nothingness is the norm.
-    * It’s the state in which we were born and how most of our youth was spent. Often bounded by bordom 
+    * It’s the state in which we were born and how most of our youth was spent. Often bounded by bordom.
 
 ### Conditions to reach nothingness state
 
